@@ -8,8 +8,8 @@ Beautiful soul in and out.
 
 ## Character Traits
 
-- loves Jack
-- loves her kids
-- loves singing
+-loves Jack
+-loves to sing
+-loves her kids
 
 > You got this.
